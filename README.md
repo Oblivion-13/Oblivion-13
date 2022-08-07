@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Oblivion-13
+# 👋 Hi, I’m Oblivion-13 💻 🛰 🔐 🏕  🪂
 ![I am GitHub Readme Generator's creator](https://github.com/Evening-Star13/Evening-Star13/blob/main/hacked-hack846px-290px.gif)
 
 
